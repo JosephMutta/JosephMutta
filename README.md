@@ -1,6 +1,6 @@
  Hi, I’m @Joseph Ildephonce Mutashobya
   **Registration Number**: BCSe-01-0086-2022 
-  **I'm student at** Institute of Accountancy Arusha 
+  **I'm a student at** Institute of Accountancy Arusha 
   **Programme**: Bacelor in Cyber Security
 - 📫 Reach me via email: mutashobyajoseph2@gmail.com
 - 😄 Pronouns: ...
